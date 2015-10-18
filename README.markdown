@@ -3,7 +3,7 @@ All people who choose to be a part of our community are required to agree with t
 
 We expect everyone to help create a safe, positive, and welcoming environment for everyone.
 
-**TL;DR: Be nice with each other.** *MINASWAN*
+**TL;DR: Be nice with each other.** [*MINASWAN*](https://en.wikipedia.org/wiki/MINASWAN)
 
 ##The whole shebang
 Our community is dedicated to providing a harassment-free experience for everyone, regardless of gender, gender identity and expression, age, sexual orientation, disability, physical appearance, body size, race, religion (or lack thereof), or any other intrinsic characteristic that makes us who we are.
